@@ -4,7 +4,7 @@ real name Oleg Serdecnhy.
 19 y.o., Russia, Saint-Petersburg.
 
 trying to code or smth.
-frequently live on Twitch: twitch.tv/mikuadhd
+frequently live on Twitch: https://twitch.tv/mikuadhd
 
 and yes, i love vocaloids
 
